@@ -1,0 +1,3 @@
+I am a final year student in Web and Multimedia Development with Honors at the University of Mauritius with previous experience as a team manager, Graphic Designer, and Web Developer, passionate about helping people turn their dream vision into reality.  I exhibit a change-maker and innovation-driven mentality.
+
+Accustomed to working both independently and in a team and thriving under pressure to satisfy a company’s and clients’ needs, I am particularly proud of my ability to adapt to new environments, and my eagerness to learn more.  I am a detailed-oriented person and I keep my goals and tasks organized to maintain interminable productivity.
